@@ -1,1 +1,1 @@
-# Artificial_Intellegence-
+# Artificial Intellegence Intern
